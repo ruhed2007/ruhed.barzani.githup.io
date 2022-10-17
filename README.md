@@ -1,1 +1,0 @@
-# ruhed.barzani.githup.io
